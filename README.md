@@ -1,5 +1,5 @@
 # 💫 About Me:
-🌱 I’m currently learning Javascript<br><br>💬 Ask me about anything about coding<br><br>📫 How to reach me mathewjoseph3831v@gmail.com<br>
+🌱 I’m currently learning Javascript<br><br>💬 Ask me anything about coding<br><br>📫 How to reach me mathewjoseph3831v@gmail.com<br>
 
 
 ## 🌐 Socials:
